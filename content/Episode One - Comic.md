@@ -58,7 +58,7 @@ I refuse to yield.
 
 ---
 
-# Episode One: Scene 2 - Talos’s Quarters
+# Scene 2 - Talos’s Quarters
 
 ## Page 3
 
