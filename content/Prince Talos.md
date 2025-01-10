@@ -53,10 +53,10 @@
 
 ### **Key Relationships**
 
-- **King Chrysós
-- **Queen Nyssa
-- **Valhn**
-- **Fytó:** The Guardian of the Forest
+- **[[King Chrysós]]**
+- **[[Queen Nyssa]]**
+- **[[Valhn]]**
+- **[[Fytó]]**
 
 ---
 ### **Goals and Motivations**
