@@ -1,8 +1,6 @@
 ---
-title: Chronicles of Zoís
+title: The Chronicles of Zoís
 ---
-
-# The Chronicles of Zoís  
 *Index of Episodes & Characters*
 
 
@@ -33,4 +31,6 @@ title: Chronicles of Zoís
 
 ## World Archives  
 *(Coming Soon)*  
-- [ ] Geography 
+- Geography of Zoís
+- Royal Succession Laws
+- Zoís Pantheon
