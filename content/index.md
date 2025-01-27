@@ -15,5 +15,5 @@
 ### Character Wiki
 
 - [[Prince Talos]]
-
+- [[Captain Thorne]]
 
