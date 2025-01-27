@@ -41,3 +41,57 @@ He moved with a quiet grace, his steps barely making a sound on the polished woo
 Talos hesitated, his gaze drifting to the stand beside his desk. Hanging there was an amber pendant, suspended from a simple cord. The pendant glowed faintly in the muted light, its warmth radiating a quiet sense of reassurance. His fingers brushed the pendant gently, the familiar weight a reminder of his mother’s love and the wisdom she once shared. The room around him was modest yet filled with personal touches. 
 
 Scrolls and tomes lined the shelves, their edges worn from years of study. A bundle of feathers in varying hues rested on a small table, a memento of past achievements and fleeting moments of joy. The faint hum of the pendant in his hand resonated with his heartbeat, grounding him as he closed his eyes and exhaled. Here, at least, he could breathe.
+
+The amber pendant pulsed faintly in Talos’s palm, its warmth spreading through his fingers like sunlight glittering through leaves. For a moment, he could almost hear her voice—soft, steady, the way it lingered in the quiet hours before dawn. _“Strength isn’t found in the absence of fear, my son. It’s found in the choice to rise despite it.”
+
+His feathers flickered, their hues softening to a tentative gold. He traced the pendant’s surface, the amber’s inner glow casting faint shadows across the wooden patterns of his face. A memory surfaced: his mother’s hands, weathered yet gentle, fastening the cord around his neck the night before the darkness took her. _“This is more than a stone,”_ she’d said. _“It carries the light of our lineage. When doubt clouds your path, let it remind you that roots grow strongest in the dark.”_
+
+Talos sank into the chair beside his desk, the pendant still cradled in his palm. His gaze drifted to the shelves of scrolls: treatises on combat, histories of Zoís’s kings, diagrams of stances he’d memorized yet failed to master. Valhn’s taunt echoed in his mind: _“Maybe grab a broomstick instead.”_
+
+He stood abruptly, the chair scraping against the floor. His stave leaned against the wall, its polished wood gleaming mockingly. Talos snatched it up, his grip tightening until his knuckles paled. The weapon felt alien in his hands, a relic of failure. Yet...
+
+**WHOOSH.**
+
+The stave struck the empty air, its arc clumsy, unbalanced. Talos gritted his teeth, his feathers darkening to a frustrated bronze. He swung again, harder, aiming for the imaginary opponent—Valhn, the other jeering students, his father’s disapproving glare.
+
+**CRACK.**
+
+The stave collided with the edge of the desk, sending a tremor up his arms. A scroll toppled to the floor, unfurling to reveal an illustration of Fytó, the Deer Guardian, antlers ablaze with celestial light. Talos froze, his breath catching. The Guardian’s eyes seemed to bore into him, ancient and knowing.
+
+_“Do you seek power, child of mine?”_
+
+The voice rippled deeply through the room, though Talos couldn’t tell if it came from the pendant, the scroll, or his own weary mind. His feathers flared bright gold, the color of dawn breaking through storm clouds.
+
+The voice lingered, its resonance fading like a half-remembered dream. Talos stared at the scroll, Fytó’s antlers blazing in ink, when a sharp knock fractured the silence.
+
+**_KNOCK. KNOCK._**
+
+Talos flinched, scrambling to shove the scroll under his desk with his foot. The door creaked open before he could speak, revealing Captain Thorne’s silhouette framed in the dim hallway light. His four green eyes glowed faintly—two fixed on Talos, two scanning the room with detached precision.
+
+Thorne sighed, the crack in his mask pulsing faintly as he stepped inside. “Your guards mentioned you left training early. _Again_.”
+
+Talos stiffened, his feathers flickering to a defensive bronze. Thorne shut the door behind him, his armor silent despite its weight. His gaze swept the room: the fallen stave, the amber pendant still clutched in Talos’s hand, the scroll peeking out from under the desk.
+
+He grunted, picking up the stave and testing its weight. “Swinging at air won’t fix your footwork. You leave your left side open. Valhn exploits it.”
+
+Talos’s claws flexed. “I was just—”
+
+“_Just_ wasting time,” Thorne interrupted, tossing the stave onto the bed with a dismissive flick. “This isn’t a weapon. It’s kindling.”
+
+Before Talos could retort, Thorne pulled a slender scroll case from his belt and dropped it onto the desk with a _thud_. The Royal Guard’s insignia glinted in the pendant’s amber light.
+
+“Read it,” he said, already turning to leave. “Or don’t. Your incompetence isn’t my concern.”
+
+At the door, he paused. Without looking back, his voice softened—a rare crack in his stoicism. “Your mother once told me… roots don’t grow in straight lines. They bend. They fracture stone.”
+
+The crack in his mask flared briefly, the sap within it glowing like a trapped ember. Then he was gone, his footsteps echoing down the hall.
+
+Talos stared at the scroll case. The pendant’s warmth seeped back into his palm, its light mingling with the greenish glow of Thorne’s abandoned treatise. He unrolled the parchment, revealing diagrams of Zolris warriors moving like wind through trees—fluid, adaptive, _unseen_.
+
+In the margins, in handwriting too precise to be anyone else’s, a single note:
+
+_“Strength isn’t in the swing. It’s in the step before.”_
+
+Outside, the moon climbed higher, its light painting the floor silver. Somewhere in the distance, a guard’s horn sounded—low, steady, unwavering.
+
+Talos tucked the scroll into his tunic, his fingers brushing the amber pendant.
