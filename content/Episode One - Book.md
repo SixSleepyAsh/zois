@@ -96,7 +96,7 @@ Outside, the moon climbed higher, its light painting the floor silver. Somewhere
 
 Talos tucked the scroll into his tunic, his fingers brushing the amber pendant.
 
-## Chapter 3: **Echoes of the Heart Tree**
+## Chapter 3: **Echoes of the Past**
 
 Thorne’s boots echoed softly against the moss-carved steps of the Crownspire, the highest tower in Zoís’s royal complex. The air here smelled of petrichor and ancient stone, a remnant of the Eldertree’s roots that coiled beneath the castle like dormant serpents. The wind carried a crisp chill as he ascended, his steps guided by instinct rather than purpose. The worn stone beneath his feet whispered stories of centuries past, of kings and warriors who once tread the same paths. His four glowing green eyes flickered in the dim light, searching, watching. The damp coolness of the stone seeped through his armor, a reminder of the weight he carried. Eventually, he found himself at the hidden passage leading to the secret terrace high above the castle.
 
