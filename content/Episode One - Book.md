@@ -1,7 +1,7 @@
 ## Chapter 1: **The Academy Courtyard**
 
 **CRACK! CRACK!**  
-The sharp clash of wooden staves echoed across the academy training grounds, bouncing off the smooth stone slabs and mingling with the rhythmic patter of feet against the circular stage. Prince Talos found himself once again on the defensive, his vibrant green-and-gold gills flaring behind him with agitation.  
+The sharp clash of wooden staves echoed across the academy training grounds, bouncing off the smooth stone slabs and mingling with the rhythmic patter of feet against the circular stage. Prince Talos found himself once again on the defensive, his vibrant green-and-gold elyssage flaring behind him with agitation.  
 
 “He—hey, wait—”  
 **THWACK!**  
@@ -10,7 +10,7 @@ A well-aimed strike slammed into his chest, sending him sprawling onto the unfor
 
 The training grounds, with their expansive stone flooring and towering walls lined with equipment containers, offered no comfort. Wooden staves rested neatly in racks near the walls, ready for use, while the open space beyond the circular stage hinted at endless morning laps run by weary students. But right now, the world felt smaller, collapsing into the circle of ridicule around him.  
 
-Talos pressed a hand to the slabs beneath him, the rough texture grounding him as he struggled to sit up. His feathers now flickered in dull, muted shades of green. The voices of his peers struck like whips, their taunts sharper than any blade.  
+Talos pressed a hand to the slabs beneath him, the rough texture grounding him as he struggled to sit up. His elyssage now flickered in dull, muted shades of green. The voices of his peers struck like whips, their taunts sharper than any blade.  
 
 > “Look at him! The *prince*! Hahaha!”  
 
@@ -20,17 +20,17 @@ Talos pressed a hand to the slabs beneath him, the rough texture grounding him a
 
 > “Talos should stick to books. Maybe he can write a guide on how *not* to fight!”  
 
-Talos shifted his weight and pushed himself upright, his gills quivering faintly as streaks of gold began to creep back into their hue. The words hurt more than the physical pain, and the thought of Valhn—the academy's prodigy—taking his **right** sent a bitter pang through his core.  
+Talos shifted his weight and pushed himself upright, his elyssage quivering faintly as streaks of gold began to creep back into their hue. The words hurt more than the physical pain, and the thought of Valhn—the academy's prodigy—taking his **right** sent a bitter pang through his core.  
 
-"You’ve been stuck in the same place for ages, Talos," Valhn sneered, stepping forward. His mask, adorned with intricate bark-like whorls, glinted under the midday light, and his feathers flared a triumphant crimson. "Maybe you should consider a career with the temple gardeners. At least you wouldn’t embarrass yourself there."  
+"You’ve been stuck in the same place for ages, Talos," Valhn sneered, stepping forward. His mask, adorned with intricate bark-like whorls, glinted under the midday light, and his elyssage flared a triumphant crimson. "Maybe you should consider a career with the temple gardeners. At least you wouldn’t embarrass yourself there."  
 
-Talos’s glowing eyes narrowed as his hands tightened into fists, claws flexing slightly. He knew Valhn’s words were meant to provoke him, but the insult still stung. His feathers betrayed his inner turmoil, the golden hues shifting to a stormy ochre as he struggled to steady himself.  
+Talos’s glowing eyes narrowed as his hands tightened into fists, claws flexing slightly. He knew Valhn’s words were meant to provoke him, but the insult still stung. His elyssage betrayed his inner turmoil, the golden hues shifting to a stormy ochre as he struggled to steady himself.  
 
 Beyond Valhn, the walls of the academy framed the training grounds, their smooth, spires towering high above. The open space hummed with the memory of morning drills, of laps run endlessly around the circular stage, but all Talos could think about was the looming succession ceremony. With it came the weight of expectations—expectations he was struggling to meet.  
 
 Valhn stepped closer, his voice dropping to a venomous murmur. "You know, Talos, it’s not too late to back out. No one would blame you for admitting you’re not cut out for this. Tomorrow, we train with real spears—not sticks for sparring children. Maybe grab a broomstick instead. That’s more your speed."  
 
-Talos’s gills flared, their colors darkening to an angry orange. His glowing eyes burned brighter, twin orbs of golden defiance against Valhn’s taunts. Though his body ached and his pride lay battered, something deep within him refused to yield. He straightened his stance, staring beyond Valhn to the spires and the horizon beyond.  
+Talos’s elyssage flared, their colors darkening to an angry orange. His glowing eyes burned brighter, twin orbs of golden defiance against Valhn’s taunts. Though his body ached and his pride lay battered, something deep within him refused to yield. He straightened his stance, staring beyond Valhn to the spires and the horizon beyond.  
 
 ## Chapter 2: **Talos's Quarters**
 
@@ -44,7 +44,7 @@ Scrolls and tomes lined the shelves, their edges worn from years of study. A bun
 
 The amber pendant pulsed faintly in Talos’s palm, its warmth spreading through his fingers like sunlight glittering through leaves. For a moment, he could almost hear her voice—soft, steady, the way it lingered in the quiet hours before dawn. _“Strength isn’t found in the absence of fear, my son. It’s found in the choice to rise despite it.”_
 
-His feathers flickered, their hues softening to a tentative gold. He traced the pendant’s surface, the amber’s inner glow casting faint shadows across the wooden patterns of his face. A memory surfaced: his mother’s hands, weathered yet gentle, fastening the cord around his neck the night before the darkness took her. _“This is more than a stone,”_ she’d said. _“It carries the light of our lineage. When doubt clouds your path, let it remind you that roots grow strongest in the dark.”_
+His elyssage feathers flickered, their hues softening to a tentative gold. He traced the pendant’s surface, the amber’s inner glow casting faint shadows across the wooden patterns of his face. A memory surfaced: his mother’s hands, weathered yet gentle, fastening the cord around his neck the night before the darkness took her. _“This is more than a stone,”_ she’d said. _“It carries the light of our lineage. When doubt clouds your path, let it remind you that roots grow strongest in the dark.”_
 
 Talos sank into the chair beside his desk, the pendant still cradled in his palm. His gaze drifted to the shelves of scrolls: treatises on combat, histories of Zoís’s kings, diagrams of stances he’d memorized yet failed to master. Valhn’s taunt echoed in his mind: _“Maybe grab a broomstick instead.”_
 
@@ -52,7 +52,7 @@ He stood abruptly, the chair scraping against the floor. His stave leaned agains
 
 **WHOOSH.**
 
-The stave struck the empty air, its arc clumsy, unbalanced. Talos gritted his teeth, his feathers darkening to a frustrated bronze. He swung again, harder, aiming for the imaginary opponent—Valhn, the other jeering students, his father’s disapproving glare.
+The stave struck the empty air, its arc clumsy, unbalanced. Talos gritted his teeth, his elyssage darkening to a frustrated bronze. He swung again, harder, aiming for the imaginary opponent—Valhn, the other jeering students, his father’s disapproving glare.
 
 **CRACK.**
 
@@ -60,7 +60,7 @@ The stave collided with the edge of the desk, sending a tremor up his arms. A sc
 
 _“Do you seek power, child of mine?”_
 
-The voice rippled deeply through the room, though Talos couldn’t tell if it came from the pendant, the scroll, or his own weary mind. His feathers flared bright gold, the color of dawn breaking through storm clouds.
+The voice rippled deeply through the room, though Talos couldn’t tell if it came from the pendant, the scroll, or his own weary mind. His elyssage feathers flared bright gold, the color of dawn breaking through storm clouds.
 
 The voice lingered, its resonance fading like a half-remembered dream. Talos stared at the scroll, Fytó’s antlers blazing in ink, when a sharp knock fractured the silence.
 
@@ -122,11 +122,11 @@ Chrysós exhaled slowly, then his eyes drifted to the horizon. The cool wind car
 
 Thorne nodded, the distant hoot of a nightbird punctuating the king’s words. "The balance is shifting. The Forest’s voice is not as strong as it used to be. The roots that bind our lands together are losing their hold. I fear that if Talos does not stand firm, others will rise to claim what we cannot protect."
 
-Chrysós's gills elyssage momentarily before softening to a contemplative hue. "I think of the other kingdoms beyond our borders—the north with their ruthless expansion, the shifting sands of the south, and the quietness of the east. Each watching us."
+Chrysós's elyssage momentarily before softening to a contemplative hue. "I think of the other kingdoms beyond our borders—the north with their ruthless expansion, the shifting sands of the south, and the quietness of the east. Each watching us."
 
 "They look for weakness, sire," Thorne murmured, his feathers bristling slightly against the wind. "And they are patient."
 
-The king let out a long breath, his feathers trembling slightly in the wind. "That is why we must be stronger, more united than ever. Talos represents the future, but he must understand that strength is not only in the blade. Our world is vast, and wisdom must guide the hand that wields power."
+The king let out a long breath, his elyssage trembling slightly in the wind. "That is why we must be stronger, more united than ever. Talos represents the future, but he must understand that strength is not only in the blade. Our world is vast, and wisdom must guide the hand that wields power."
 
 Thorne’s elyssage feathers rippled in silent agreement, their emerald hues glistening faintly. "Then tell him, Majesty. He carries the weight of your expectations, but he should also know he carries your love. Let him see the world through your eyes before he must hold it upon his shoulders."
 
