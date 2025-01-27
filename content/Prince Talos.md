@@ -57,6 +57,7 @@
 - **[[Queen Nyssa]]**
 - **[[Valhn]]**
 - **[[Fytó]]**
+- [[Captain Thorne]]
 
 ---
 ### **Goals and Motivations**
