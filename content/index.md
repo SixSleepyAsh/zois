@@ -1,19 +1,36 @@
-## Table of Contents
+---
+title: Chronicles of Zoís
+---
+
+# The Chronicles of Zoís  
+*Index of Episodes & Characters*
 
 
-### Episode One
-- [[Episode One - Book]]
+## Episodes
 
-- [[Episode One - Comic]]
+### Episode One  
+- [[Episode One - Book]]  
+- [[Episode One - Comic]]  
 
-### Episode Two
+### Episode Two  
+*(In Development)*  
 
+### Episode Three  
+*(In Development)*  
 
-### Episode Three
+---
 
+## Character Compendium
 
-### Character Wiki
+### Royal Family
+- [[Prince Talos]] 
+- [[King Chrysós]] - *(Page Pending)*
 
-- [[Prince Talos]]
-- [[Captain Thorne]]
+### Royal Guard
+- [[Captain Thorne]] 
 
+---
+
+## World Archives  
+*(Coming Soon)*  
+- [ ] Geography 
