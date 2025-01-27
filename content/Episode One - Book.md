@@ -108,9 +108,9 @@ Stepping onto the secluded overlook, he saw King Chrysós standing at the edge, 
 
 "You make it easy, sire. Even kings have their habits." Thorne’s eyes roamed the terrace, the distant torches of the castle walls flickering below like fireflies trapped in the night.
 
-Chrysós allowed his elyssage to flare slightly, a fleeting sign of amusement, before their colors darkened with concern. "The border unrest grows worse. Our scouts report more sightings of the Blightborn near the outer settlements. The air feels... wrong. Thick."
+Chrysós allowed his elyssage to flare slightly, a fleeting sign of amusement, before their colors darkened with concern. "The border unrest grows worse. Our scouts report more sightings of the Blightborn near the outer settlements."
 
-Thorne’s grip tightened on the hilt of his spear, _Vigil’s Reach_, the familiar weight reassuring beneath his palm. "They move like a plague, Your Majesty. We push them back, but they return stronger each time. The scent of decay lingers long after they’ve gone."
+Thorne’s grip tightened on the hilt of his spear, the familiar weight reassuring beneath his palm. "They move like a plague, Your Majesty. We push them back, but they return stronger each time. The scent of decay lingers long after they’ve gone."
 
 Chrysós sighed, his elyssage flickering with conflicted hues. "And Talos… I know he believes I’m too harsh. He struggles under the weight of expectation."
 
@@ -122,15 +122,15 @@ Chrysós exhaled slowly, then his eyes drifted to the horizon. The cool wind car
 
 Thorne nodded, the distant hoot of a nightbird punctuating the king’s words. "The balance is shifting. The Forest’s voice is not as strong as it used to be. The roots that bind our lands together are losing their hold. I fear that if Talos does not stand firm, others will rise to claim what we cannot protect."
 
-Chrysós's gills darkened momentarily before softening to a contemplative hue. "I think of the other kingdoms beyond our borders—the Ivory Dominion with their ruthless expansion, the shifting sands of the Sunscorned Isles, and the quiet strength of the Ember Spire. Each watching, waiting for us to falter."
+Chrysós's gills elyssage momentarily before softening to a contemplative hue. "I think of the other kingdoms beyond our borders—the north with their ruthless expansion, the shifting sands of the south, and the quietness of the east. Each watching us."
 
-"They smell weakness, sire," Thorne murmured, his feathers bristling slightly against the wind. "And they are patient."
+"They look for weakness, sire," Thorne murmured, his feathers bristling slightly against the wind. "And they are patient."
 
 The king let out a long breath, his feathers trembling slightly in the wind. "That is why we must be stronger, more united than ever. Talos represents the future, but he must understand that strength is not only in the blade. Our world is vast, and wisdom must guide the hand that wields power."
 
 Thorne’s elyssage feathers rippled in silent agreement, their emerald hues glistening faintly. "Then tell him, Majesty. He carries the weight of your expectations, but he should also know he carries your love. Let him see the world through your eyes before he must hold it upon his shoulders."
 
-Chrysós’s gills brightened, a flicker of warmth threading through their hues. "You are wise, Thorne. Wiser than most give you credit for."
+Chrysós’s elyssage brightened, a flicker of warmth threading through their hues. "You are wise, Thorne. Wiser than most give you credit for."
 
 Thorne huffed lightly, a low rumble in his chest. "Wisdom is just the sum of mistakes, sire. And I’ve made my fair share."
 
