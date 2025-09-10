@@ -1,5 +1,6 @@
 ### **General Information**
 
+![[Prince_Talos.png]]
 - **Full Name:** Talos Chrysós
 - **Title:** Crown Prince of the Zoís Kingdom
 - **Age:** 19
