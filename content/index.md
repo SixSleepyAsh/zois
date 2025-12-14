@@ -10,14 +10,7 @@ title: The Chronicles of Zoís
 - [[Episode One - Book]]  
 - [[Episode One - Comic]]  
 
-### Episode Two  
-*(In Development)*  
-
-### Episode Three  
-*(In Development)*  
-
 ---
-
 ## Character Compendium
 
 ### Royal Family
@@ -28,9 +21,7 @@ title: The Chronicles of Zoís
 - [[Captain Thorne]] 
 
 ---
-
 ## World Archives  
-*(Coming Soon)*  
 - Geography of Zoís
 - Royal Succession Laws
-- Zoís Pantheon
+- [[Pantheon]]
