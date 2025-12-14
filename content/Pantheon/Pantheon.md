@@ -8,15 +8,13 @@
 6. **Uranós** - Sky God (Wind, Weather, Breath)  
 7. **Pyrós** - Sun/Fire God (Light, Flame, Warmth)  
 
-# The Cosmic Conflict
+# The Conflict
 
 In the beginning, there was nothing. Éremos existed alone in perfect peace and silence. Then the other six gods emerged/arrived and shattered his tranquility with their creations - forests, oceans, mountains, deserts, sky, fire. Everything they made was noise and chaos to him.
 
 **Éremos’s Goal:** Restore the primordial peace by unmaking all creation, returning everything to the void. He corrupts the other gods’ creations, trying to erase existence itself.  
 
 **The Gods’ Response:** Each god created a reincarnated disciple - mortals who carry divine power and can anchor their patron’s domain in the physical world.
-
-
 
 # The Seven Disciples
 
@@ -68,8 +66,6 @@ In the beginning, there was nothing. Éremos existed alone in perfect peace and 
 
 ## Sky Region (TBD)
 - **Uranós’s Domain** - Possibly highlands, steppes, or windswept plains where sky feels endless  
-
-
 
 # Éremos’s Corruption
 
